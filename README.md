@@ -1,9 +1,11 @@
-- 👋 Hi, I’m @NinV3
-- 👀 I’m interested in mewing
-- 🌱 I’m currently learning looksmaxing
-- 💞️ I’m looking to collaborate on wenigade waider
-- 😄 Pronouns: he/him
-- ⚡ Fun fact: i like cats
+FULL BOXED FULL BOXED FULL BOXED FULL BOXED 100 DEAD (im mongraal if he was dogsh1t)
+
+the car in my profile picture did a backflip seconds after
+
+coding in code spaces and working on Python coding
+
+
+
 
 <!---
 NinV3/NinV3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
