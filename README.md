@@ -1,11 +1,11 @@
-FULL BOXED FULL BOXED FULL BOXED FULL BOXED 200 (im mongraal if he was dogsh1t)
+______________________________________________________________________
 
 the car in my profile picture did a backflip seconds after
 
 coding in code spaces and working on Python coding
 
 I play guitar and love slipknot, type 0 negative, and system of a down
-
+______________________________________________________________________
 
 
 
